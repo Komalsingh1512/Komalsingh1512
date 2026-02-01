@@ -1,2 +1,2 @@
 # Hey there, I am Komal 
-## pursuing MCA from LPU
+## Pursuing MCA from LPU
